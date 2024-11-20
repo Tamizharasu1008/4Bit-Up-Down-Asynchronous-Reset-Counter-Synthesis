@@ -73,7 +73,7 @@ used.
 ![WhatsApp Image 2024-11-20 at 9 45 06 PM](https://github.com/user-attachments/assets/4c43f3a9-5deb-4a8b-bcd7-d937e5f107e0)
 
 #### Timing Report: 
-![Uploading WhatsApp Image 2024-11-20 at 9.45.07 PM.jpeg…]()
+![WhatsApp Image 2024-11-20 at 9 45 07 PM](https://github.com/user-attachments/assets/30a420c7-c5c2-4da6-ab8c-cebbf0f4461e)
 
 #### Result: 
 
